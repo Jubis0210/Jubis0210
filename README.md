@@ -9,3 +9,6 @@ Meu nome é Julia da Silva
 ###  Você entrar em comigo 📫 
 
 juliabeserra7@gmail.com
+
+![](https://tenor.com/pt-BR/view/sherek-brasil-requebrado-gif-21583064)
+
